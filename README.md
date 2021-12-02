@@ -1,1 +1,1 @@
-# Thw developer is developing hi skills''
+# Thw developer is developing his skills''
